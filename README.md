@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rivanrovs._
+- 👋 Hi, I’m @ivanrouss._ on intstagram.
 - 👀 I’m interested in find my succes with mi life in order.
 - 🌱 I’m currently learning Cultivating what I have sown through knowledge
 - 💞️ I’m looking to collaborate on Any positive energy that my being finds
